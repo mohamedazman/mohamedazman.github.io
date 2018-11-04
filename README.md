@@ -1,2 +1,2 @@
 # mohamedazman.github.io
-Redirect to : https://aufenbach.com/mohamedazman
+Redirect to : https://aufenbach.com/azman
